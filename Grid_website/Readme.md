@@ -1,1 +1,0 @@
-Images are from www.unsplash.com
